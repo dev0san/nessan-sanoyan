@@ -63,3 +63,11 @@ Donc j'ai dû renoncer, trouver mes propres complices
 Mes partenaires de glisse, désolé si je m'immisce
 
 
+Chœur
+
+
+Mais laisse pas traîner ton fils
+Si tu ne veux pas qu'il glisse
+Qu'il te ramène du vice
+Laisse pas traîner ton fils
+Si tu veux pas qu'il glisse
