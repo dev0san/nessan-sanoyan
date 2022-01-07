@@ -62,8 +62,16 @@ J'avais pas l'impression d'être plus coté qu'une caisse à l'argus
 Donc j'ai dû renoncer, trouver mes propres complices
 Mes partenaires de glisse, désolé si je m'immisce
 
+Chœur
 
-<<<<<<< HEAD
+
+Mais laisse pas traîner ton fils
+Si tu ne veux pas qu'il glisse
+Qu'il te ramène du vice
+Laisse pas traîner ton fils
+Si tu veux pas qu'il glisse
+
+
 Kool Shen
 
 Que voulais-tu que ton fils apprenne dans la rue?
@@ -84,13 +92,19 @@ D'esquives, des "shta-pow!" de putains de stonba
 Laisse pas traîner ton fils
 Si tu veux pas qu'il glisse
 Qu'il te ramène du vice
-=======
-Chœur
 
 
-Mais laisse pas traîner ton fils
+Choeur
+
+Non laisse pas traîner ton fils
+Laisse pas traîner ton fils
 Si tu ne veux pas qu'il glisse
 Qu'il te ramène du vice
 Laisse pas traîner ton fils
 Si tu veux pas qu'il glisse
->>>>>>> cd282de054923d19a4d08ff4aa1d09464fe0031e
+Laisse pas traîner ton fils
+Si tu ne veux pas qu'il glisse
+Qu'il te ramène du vice
+Laisse pas traîner ton fils
+Si tu veux pas qu'il glisse
+
